@@ -1,0 +1,2 @@
+# Solikemoney
+EASY TO USE
